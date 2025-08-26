@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Gilang Ramadhan**.<br>
+Perkenalkan nama ku **Iqbal Harish Musyaffa**.<br>
 
 Saya seorang **Mahasiswa** di Universitas Islam Negeri Maulana Malik Ibrahim.<br>
 
